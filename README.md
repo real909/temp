@@ -1,2 +1,2 @@
 # temp
-just for some educational stuff :)
+ignore this or if you understand donate c:
